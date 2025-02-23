@@ -1,2 +1,1 @@
-# X---
-你可以在这里找到很多帮助
+<https://mahaoming2022.github.io/2025/02/23/AT-birthday0410-x-%E8%A7%A3%E9%A2%98%E6%8A%A5%E5%91%8A>
